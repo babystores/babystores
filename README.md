@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @babystores
-- 👀 I’m interested in Baby Products
+- 👀 I’m interested in Sale Baby Products
 - 🌱 I’m currently providing New Mom and Baby Products online in UAE ...
 - 💞️ I’m looking to collaborate on Many Baby & Mommy 
 - 📫 How to reach me ...
